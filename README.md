@@ -43,6 +43,6 @@ Tag **@unwelcomedata** — I’ll dig deeper.
 
 ---
 
-> *Curiosity drives the analysis.*
+> *No agenda. Just patterns.*
 
 ---
